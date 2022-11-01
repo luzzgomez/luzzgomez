@@ -1,4 +1,4 @@
-## :purple_heart: Hola! Soy Luz Gómez / Hi! I'm Luz Gómez :purple_heart:
+## :purple_heart: Hola! Soy Luz Milagros Gómez Rivera / Hi! I'm Luz Gómez :purple_heart:
 
 - :school: **Estudiante de la UNSa / UNSa student**
 
